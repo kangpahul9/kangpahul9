@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my future projects
 - 📫 Reach me by email : pahulpreet2959@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: National champion in Cricket and Archery.
+- ⚡ Fun fact: I'm an Archer.
 
 <!---
 kangpahul9/kangpahul9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
